@@ -3,7 +3,7 @@
 
 # Marta Laviña
 
-**Sports Marketing & Event Management** • **International Figure Skater** • **Coach**
+**Sports Marketing & Event Management student** • **International Figure Skater** • **Coach**
 
 Connecting athletic discipline with digital innovation
 
