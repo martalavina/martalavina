@@ -84,8 +84,8 @@ Sports Technology
 
 ### Quick facts
 
-- 🌍 Competed internationally across **7 countries**  
-- 🌅 You can find me at the rink at **7 AM**   
+- 🌍 Competed & trained internationally across **7 countries**  
+- 🌅 You can find me at the rink at **7 AM** for trainings  
 - ✈️ I love discovering new places and collecting moments from every trip
 - 📚 I'm naturally curious and always learning something new
 
